@@ -1,1 +1,1 @@
-![ELEKTRO ERDEM (3)](https://github.com/user-attachments/assets/58b0ee7f-9e5c-48e9-94a6-388c2458bedd)
+![Adsız tasarım](https://github.com/user-attachments/assets/4c778234-64b2-437e-ac35-6b2a71267871)
